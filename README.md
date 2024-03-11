@@ -1,4 +1,4 @@
-# Chris Seán Broderick
+# Christopher Seán Broderick
 *Product & Project Maestro* Not Smart but with Chat GPT I am competent
 
 ## A Symphony of Success 🚀
